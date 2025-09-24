@@ -1,4 +1,4 @@
-uh- hi? idk how to put this shit— anyway,it's my first time so bare w me.
+uh- hi? idk how to put this shit— anyway, it's my first time so bare w me.
 
 int list:
 - Adults
