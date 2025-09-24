@@ -14,4 +14,10 @@ dni list:
 
  how to easily understand me:
  - I never take things srsly, so pls don't take my words to heart
- - I talk w tone text, take me srsly if I type "
+ - I talk w tone text, take me srsly if I type "/srs"
+ - I'm a vulgar joker, means I joke with flirting and 18+ humor, if u're uncomfortable with it please do tell me. I don't like making people uncomfortable.
+
+sexuality & hobbies:
+- I'm a cis female, but I am a [gender fluid] and I prefer to be address in he/him pronounce
+- a lesbian (still looking for myself) 
+- hobbies: drawing, writing, fishing, swimming, dancing, volleyball & acting. 
