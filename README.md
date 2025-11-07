@@ -18,6 +18,6 @@ dni list:
  - I'm a vulgar joker, means I joke with flirting and 18+ humor, if u're uncomfortable with it please do tell me. I don't like making people uncomfortable.
 
 sexuality & hobbies:
-- I'm a cis female, but I am a [gender fluid] and I prefer to be address in he/him pronounce
-- a lesbian (still looking for myself) 
+- DemiBoy [He/Him] 
+- pansexual (still looking for myself) 
 - hobbies: drawing, writing, fishing, swimming, dancing, volleyball & acting. 
